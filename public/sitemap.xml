@@ -2,17 +2,14 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9"
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   <url>
-    <loc>http://localhost:1313/posts/my-first-post/</loc>
+    <loc>https://udsfindshappiness.com/posts/</loc>
     <lastmod>2025-03-24T22:17:43+04:00</lastmod>
   </url><url>
-    <loc>http://localhost:1313/</loc>
+    <loc>https://udsfindshappiness.com/</loc>
     <lastmod>2025-03-24T22:17:43+04:00</lastmod>
   </url><url>
-    <loc>http://localhost:1313/posts/</loc>
-    <lastmod>2025-03-24T22:17:43+04:00</lastmod>
+    <loc>https://udsfindshappiness.com/categories/</loc>
   </url><url>
-    <loc>http://localhost:1313/categories/</loc>
-  </url><url>
-    <loc>http://localhost:1313/tags/</loc>
+    <loc>https://udsfindshappiness.com/tags/</loc>
   </url>
 </urlset>
