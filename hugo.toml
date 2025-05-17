@@ -2,6 +2,8 @@ baseURL = 'https://udsfindshappiness.com/'
 languageCode = 'en-us'
 title = 'Uds Finds Happiness'
 theme = 'ananke'
+params:
+  imageCdn: "https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/homepage"
 [caches]
   [caches.images]
     dir = ':cacheDir/images'
