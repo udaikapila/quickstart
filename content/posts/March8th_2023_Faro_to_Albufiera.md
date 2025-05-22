@@ -1,11 +1,8 @@
 +++
 date = '2025-03-24T22:17:43+04:00'
 draft = false
-title = 'My First Post'
+title = 'March 8th: Faro Airport to Albufiera'
 +++
-## Introduction
-
-**Hello World!**
 
 It's December 12th, 2023. On the 7th of March, 2023 I left my home in Toronto for Faro, Protugal. Bike packed up in a box, gear meticulously curated over hours and hours of packing, unpacking, repacking and imagining the time i'll need a Life Straw, or a parachord or a glass bottle of perfume. Spoiler... I didn't need any of that stuff... The plan for day 1 was simple. Land in Faro at 10:30am, put my bike together and cycle to Albufiera campground about 50kms away for the night. Let's do it!
 
