@@ -1,10 +1,12 @@
 +++
-date = '2025-03-24T22:17:43+04:00'
+date = '2023-03-08'
 draft = false
 title = 'March 8th: Faro Airport to Albufiera'
 +++
 
-It's December 12th, 2023. On the 7th of March, 2023 I left my home in Toronto for Faro, Protugal. Bike packed up in a box, gear meticulously curated over hours and hours of packing, unpacking, repacking and imagining the time i'll need a Life Straw, or a parachord or a glass bottle of perfume. Spoiler... I didn't need any of that stuff... The plan for day 1 was simple. Land in Faro at 10:30am, put my bike together and cycle to Albufiera campground about 50kms away for the night. Let's do it!
+Today is May 22nd, 2025. On the 7th of March, 2023 I left my home in Toronto for Faro, Protugal. This blog is the story of my trip.
+
+Bike packed up in a box, gear meticulously curated over hours and hours of packing, unpacking, repacking and imagining the time i'll need a Life Straw, or a parachord or a glass bottle of perfume. Spoiler... I didn't need any of that stuff... The plan for day 1 was simple. Land in Faro at 10:30am, put my bike together and cycle to Albufiera campground about 50kms away for the night. Let's do it!
 
 
 It's 12:45pm and I'm still at the airport. All that practice of unassembling and reassembling the bike in Satty's living room the day before was of no real use. After spending about ten minutes trying to screw on my left pedal on the right side of the bike, and another twenty minutes on figuring out how to re-attach my front wheel, i did get pang of "I'm fucked...". I did eventually put together the bike and somehow, strapped on all the bags I had packed. I walked my bike out of the airport and unconfidentally started pedalling off into the hectic arrivals and departures traffic. 
@@ -19,17 +21,15 @@ Mission one was to get to a Decathalon. I had to pick up a gas canister for my c
 Google maps took me through some nice backroads. I stole an orange from an overhanging branch of an orchard, and three dogs that were enjoying an afternoon snooze immediately came to attention and began alerting the entire neighbourhood of my presence. I cycled off, biting into the orange apple-style. Sweet and sour and no seeds!
 
 
-![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6965.jpeg)
+!(https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6965.jpeg)
 
-![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6986.jpeg)
+!(https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6986.jpeg)
 
-![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6985.jpeg)
+!(https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6981.jpeg)
 
-![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6981.jpeg)
+!(https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6979.jpeg)
 
-![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6979.jpeg)
-
-![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6977.jpeg)
+!(https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6977.jpeg)
 
 ![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6976.jpeg)
 
