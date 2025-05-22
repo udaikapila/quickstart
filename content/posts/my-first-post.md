@@ -21,5 +21,18 @@ Mission one was to get to a Decathalon. I had to pick up a gas canister for my c
 
 Google maps took me through some nice backroads. I stole an orange from an overhanging branch of an orchard, and three dogs that were enjoying an afternoon snooze immediately came to attention and began alerting the entire neighbourhood of my presence. I cycled off, biting into the orange apple-style. Sweet and sour and no seeds!
 
-<img src="https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6965.jpeg" alt="oranges"/>
+
+![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6965.jpeg)
+
+![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6986.jpeg)
+
+![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6985.jpeg)
+
+![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6981.jpeg)
+
+![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6979.jpeg)
+
+![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6977.jpeg)
+
+![App Platorm](https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/March8_2023/IMG_6976.jpeg)
 
