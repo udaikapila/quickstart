@@ -4,6 +4,7 @@ title = 'Uds Finds Happiness'
 theme = 'ananke'
 [params]
   imageCdn = 'https://udsfindshappinesscontent.nyc3.cdn.digitaloceanspaces.com/homepage'
+  read_more_copy = "Read more..."
 [caches]
   [caches.images]
     dir = ':cacheDir/images'
