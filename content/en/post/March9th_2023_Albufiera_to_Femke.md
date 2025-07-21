@@ -2,6 +2,7 @@
 date = '2023-03-08'
 draft = false
 title = 'March 9th: Albufiera to Femkes Garden'
+tags = ['europe']
 +++
 
 Woke up to a dewy morning, there was a bit of rain overnight and the tent was indeed proven to be waterproof.. woo woo! Only sixty kilometres today but it took almost six hours. The first bit of dirt roads and my Salsa Marrakesh, soon to be named "Maria", did great! As expected... but also a bit slow, crawling along at about ten kms and hour... I may have had something to do with that... 

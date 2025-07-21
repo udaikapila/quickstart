@@ -2,6 +2,7 @@
 date = '2023-03-08'
 draft = false
 title = 'March 8th: Faro Airport to Albufiera'
+tags = ['europe']
 +++
 
 Today is May 22nd, 2025. On the 7th of March, 2023 I left my home in Toronto for Faro, Protugal. This blog is the story of my trip.
