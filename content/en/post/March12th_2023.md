@@ -1,0 +1,26 @@
++++
+date = '2023-03-12'
+draft = false
+title = 'March 12th: Rural Escapes Portugal to Santa Clara (somewhere between there and Ourique)'
+tags = ['europe']
++++
+
+I Started the day out late, sorted the bags out a little and looked for my Buddha and Pegasus keepsakes… both gone and guessing casualties of the first day when I turned my bike upside down to change flats... 
+
+Today was tough, only managed 38ish kms but I also started the day late. It was hot today and was the first day I was afraid to run out of water. Towards the end of the day I found a stream and tried out my life straw, it didn’t taste quite right, we shall wait for the repercussions tomorrow… I think it’ll be ok.
+
+There were two big climbs today, both on logging roads with some challenging obstacles. I felt like Sisyphus pushing my bike up the side of the hills, stopping every 10 odd steps to catch my breath. It seemed like an impossible thing, but in my mind I kept thinking of when I reach the top, I would have done the thing I think is impossible right now. I looked down at my feet and counted my steps to a hundred and then repeated and then it got easier and I got on my bike for the next 50 metres and then off again and pushed and pushed and pushed.
+
+Down the first climb, I took my daily flat tire changing break. I was down to patching tubes now, and the one I patched yesterday was holding air!! Well kind of, there was another hole that I missed, but my patch was holding! I was so pumped that I had unlocked this new superpower that I patched all the tubes I had and had to use 5 patches for 3 tubes! I guess when I hit something hard it makes holes on both side of the tube, hence the term “pinch flat”…. Learn by doing!
+
+I also found why Maria was so wobbly yesterday! One of the tubes had a big bump in it… like when a snake swallows a rat whole or something? I was pretty psyched for this double bike related win! The back wheel is doing the same and I suspect the same issue… 
+
+Ok! So I've learned that I just had to be slow around sharp rocky trails because my tubes were not enjoying being pinched. I walked down a part of the hill, and the rest I clenched onto the brakes. The rotors were so hot by the end of it, I burned myself trying to take off the wheel when changing the flat. Note to self… brakes get hot!
+
+I made it back to the road and its 4pm and I don’t know where I’m staying tonight… the next big town is 20kms away, there’s a tiny town that’s 11km down the road, and there’s an inn of sorts there. I decide to aim for this town and made it there in about half an hour I get some water and an ice cream at the gas station and head towards the inn… there’s nobody there except for 2 guests travelling from Spain, who seem to know the owner. They only speak Spanish, like not a lick of English. The guy is talking straight Spanish at me, unfazed by my complete lack of understanding. I am able to ask if I can set up my tent on a grassy patch behind the inn, they shrug... anyway can’t get in touch with the owners of this inn and the old Spanish man said possibly there’s a spot at the fountain in the town. These small towns actually have "watering holes" where people go to collect drinking water. In this town it was kind of a well/underground fountain. He takes me there, but I didn’t have a good feeling about camping so close to the town, as there were people around. So when he left, I biked off… thanks for trying my Spanish uncle friend! 
+
+The sun is setting now, there’s a fancy hotel it looks like 5kms away so I head towards there, already made up my mind that if they don’t take me, I’m just going to ride into the night. And then, literally the first house I cross on my way to the hotel, I see these two youngish hippy looking people in the front yard of this sprawling bungalow. I take a chance and shout out to them, and they speak English! Lol so good to understand and talk… They are expats i think from Belgium by their french accent. 
+
+The girl said she could ask her brother if I could use their campsite on a riverside on their property and voila! I have a camp site for the night!! So amazing! She got on her ATV and took me down there, showed me around and told me about how they had moved to Portugal to live a cheaper and better life. They bought this plot of land and are working to rejuvenate the river that flows through it. The riverside campsite had an outdoor kitchen that came in handy for morning coffee, and they even had a fire pit and a tent already set up! After evicting one poor spider, I didn’t even need to set up my own!  It does get pretty cold at night here, so I collected up some dead branches and made a fire. Sat around it, took an obligatory picture for my fans and then put it out an hour later because sleep time is about 8pm…
+
+So, I’m a bit dirty and smelly but I have a place to sleep for the night… I have water and a bag of Frito Lays style chips for dinner and breakfast…. I’d say all in all one of the most dramatic days of my life but it all still miraculously worked out… how?

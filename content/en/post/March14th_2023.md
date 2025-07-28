@@ -1,0 +1,19 @@
++++
+date = '2023-03-14'
+draft = false
+title = 'March 14th: Castro Verde to Mertola'
+tags = ['europe']
++++
+
+Today was a bit of a mixed emotions day. I stayed in bed a little later than usual and then had a coffee with my warm showers host Rui. To my delight, he came over to my refuge with a coffee machine under his arm! He gave me some tips about the next day which I really appreciated and he kept saying “Good choice” which was also nice… Rui also looked at my bike and exhaled "Too. Heavy!". I found it hilarious that he summed up my absolute torture so succinctly. 
+
+So I dumped an entire bike bag worth of stuff in Castro Verde. Some of the absurd things i thought I needed but eventually didn't: a glass bottle of cologne, a thirty foot para chord, an extra gas canister, some clothing, a battery pack, and yes, an entire bike bag. It felt good to be a little lighter, if anything, some sort of metaphorical burden was lifted from me. I got on the road by eleven AM after a chill breakfast and lots of packing and unpacking. I chose the main road today and then a country road which was very nice, quiet and a good mix of ups and downs, mostly downs… 
+
+At one point I felt something on the back of my left leg, under my calf… it wasn’t a pop or anything dramatic… just a weird uneasy feeling like I did something to it. It didn’t hurt but just felt off for the rest of the ride. I stopped on the side of the road and tried some sprints up and down the road. If someone were to be watching, I would have looked absolutely comical. Diagnosis, I could walk and hop around and it felt ok… I could ride too, so I wondering what it was, resisting the temptation to google “what does tearing your Achilles feel like?” for the rest of the day.
+
+Maria and I Rolled into Mertola around 3pm, and after some google maps-ing, I found my little rural hotel, it’s very quaint and nice! The lady didn’t let me wash my clothes in her laundry machine, but suggested that there was a vending style laundry machine in town… so I walked into town, did some groceries and managed to do my laundry! Albeit in the middle of a busy street lol… huge win for Uds! 
+I tried to get some food, but not much was open… went to a little snack shop and got a terrible sandwich… I also mistakenly ordered five sandwiches, and when I saw the lady make it, I quickly shouted out to her to stop but she had already prepped them. She gave me a disappointing look and slammed her knife down and waved me off with just the one sandwich to my relief. Mostly because even getting through one of those dry, doughy sandwiches was torture... The food so far has been a bit disappointing, but that’s mostly because I’ve been in rural Portugal and well, in the forest… so I can’t expect much…
+
+I made an attempt to clean my bike by the river but just got it more muddy, and so did I… I have this feeling that I’ve made a big mistake coming on this trip… it’s not really that much fun, the people are just country folk, mostly very very old… the riding has been really the only fun part, and really only because it’s tough as hell… I was thinking, what if I just b-line it to the coast where there are campsites and cities galore.. but I’ve come this far now and I have a few more warm showers hopefully lined up. There’s going to be a lot of wild camping in the next few days… Again, not looking forward to it because it’s scary and uncertain and maybe I'm just not brave enough for this life...
+
+I think I’m just constantly worried about stuff… where to camp, what to eat, bike to heavy, ride to challenging, enough water, right route, bla bla bla… and it’s just a bit exhausting… not sure how to help this situation, i guess changing my mindset would help a little bit, and hopefully Spain is a different vibe from Portugal (which hasn’t been the most positive). I will try to get some sleep now… calm my buzzing mind, hopefully on the bike tomorrow I get some headspace.
