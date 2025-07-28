@@ -1,6 +1,6 @@
 +++
 date = '2023-03-13'
-draft = true
+draft = false
 title = 'March 13th: Santa Clara to Castro Verde'
 tags = ['europe']
 +++
