@@ -1,0 +1,12 @@
++++
+date = '2023-03-27'
+draft = false
+title = 'March 27th: León to Payares'
+tags = ['europe']
++++
+
+It was an early start today, but I had to hang about to exchange some money in the city… even with that, it took me almost 2 hours to get out of the city. The morning included a nice little off-road section. But Maria was struggling... the chain kept slipping and I ended up having to push her up a few kms… but the trail was nice and I didn't mind the slow pace of the walk in the morning.
+
+Once back on the road, she was much happier, so I decided to stick to the route for the rest of the day… the route today was supposed to be a tough climb, atleast that’s what people kept saying. I was finally crossing the Asturias. It was going to be going up, but we were starting pretty high already, so I only climbed about four hundred metres to the top and at no crazy gradients. It was a nice gradual climb… I was wondering the whole time when it was gonna start getting brutal, and it didn’t. Maybe it will get brutal tomorrow… The views at the top were pretty epic, snow capped mountains in the distance, little towns hidden in the valleys, like secrets.
+
+Coming down partway through the pass at 19% descents for five or more kilometres was the reward… I pity anyone cycling the other way, the descent was tricky, with traffic and winding roads. And sorry León, but that is the last time we will ever cross paths…. I ade it to the Albergue pretty early, and waited for the lady who runs it to show up. Sat on a stone wall in this town... I call it a town but it was just a cluster of a few houses and no services and lots of stray cats. Rich people would have paid a fortune for the views that these people had out of the windows of their crumbling houses. The alburge had a vending machine and a coffee machine!! There are a few other pilgrims here, one who immediately rolled a joint when he got into the dorm room. They were headed down to a pub that serviced the locals of the surrounding towns. I was invited but decided to call it an early night. It's amazing how much I look forward to sleep at night, and the earlier I'm in bed, the happier I feel. I will be calling it very early, and hope to make it to Gijon tomorrow which is a long ride but starts with another very intense descent…

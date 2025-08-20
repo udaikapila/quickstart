@@ -29,7 +29,7 @@ filename = "sitemap.xml"
 [params]
 mainSections = ["post"]
 text_color = ""
-author = "Victor Hugo" # default author, override via `author` in a posts front matter
+author = "Udai Kapila" # default author, override via `author` in a posts front matter
 favicon = ""
 site_logo = ""
 # choose a background color from any on this page: https://tachyons.io/docs/themes/skins/ and preface it with "bg-"
