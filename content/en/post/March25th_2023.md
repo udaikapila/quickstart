@@ -1,7 +1,7 @@
 +++
 date = '2023-03-25'
 draft = false
-title = 'March 25th El Cubo de Tierra del Vino to Fontanillas de Castro'
+title = 'March 25th: El Cubo de Tierra del Vino to Fontanillas de Castro'
 tags = ['europe']
 +++
 
