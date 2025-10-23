@@ -1,5 +1,5 @@
 +++
-date = '2023-04-01'
+date = '2023-04-04'
 draft = false
 title = 'April 4th: Pozueta to Askizu'
 tags = ['europe']
@@ -11,4 +11,4 @@ Anyway got to the place, dinner was meh, had a nice 20 min stop on the waterfron
 
 Notes from 2 years later: 
 
-I'm entering Basque country now... the oceanside roads are wonderful, and after that painstaking hike up to my stay tonight, I was rewarded with an awesome sunset over the mountains and ocean. There are rolling seaside ridges here with vineyards and other farm-type activity. It's not exactly the prairies but a little more interesting, with stone walls, horses, sheep and nice little farm roads. I like this part of "we are not spain we are not france". 
+I'm entering Basque country now... the oceanside roads are wonderful, and after that painstaking hike up to my stay tonight, I was rewarded with an awesome sunset over the mountains and ocean. There are rolling seaside ridges here with vineyards and other farm-type activity. It's not exactly the prairies but a little more interesting, with stone walls, horses, sheep and nice little farm roads. I like this part of "we are not Spain we are not France". 
